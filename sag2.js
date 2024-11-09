@@ -1,1 +1,1 @@
-to sage antari, an bokhor to vala
+to sage antari, an bokhor to valaasdasdas as dasd
