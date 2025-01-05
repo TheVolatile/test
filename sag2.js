@@ -1,1 +1,0 @@
-to sage antari, an bokhor to valaasdasdas as 
